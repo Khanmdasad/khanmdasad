@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **khanasad2810@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15Hu2damy89Cmt8pw_uern7AyMmLmAwHG/view?usp=share_link](https://drive.google.com/file/d/15Hu2damy89Cmt8pw_uern7AyMmLmAwHG/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/15Hu2damy89Cmt8pw_uern7AyMmLmAwHG/view?usp=share_link]([https://drive.google.com/file/d/15Hu2damy89Cmt8pw_uern7AyMmLmAwHG/view?usp=share_link](https://drive.google.com/file/d/1yk-esjnJ7XWfkf_ERxK8o2x9b9oWuNiX/view?usp=drive_link))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
